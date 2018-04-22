@@ -25,3 +25,25 @@ A thriving community is healthy -- physically, emotionally, and financially.
 
 # A Word About Perfection
 
+I spent 14 years in construction accounting and my job demanded perfection. I spent hours looking for a penny if my bank reconcilation was off. Job costing had to be accurate. Contracts had to be perfect. I get it.
+
+The problem with perfectionism is when we take a marketable skill from our career and apply it to our personal lives.
+
+Progress is better than perfection.
+Done is better than perfect.
+Something is better than nothing.
+
+# Let's Talk about Whole Health 
+
+Health comes in many forms: physical, emotional, and financial. And there are quite a few overlaps in these three distint areas, too.
+
+It's fine to talk about the abstract. In the conceptual, we all agree we should be physically, emotionally, and financially healthy. But are we?
+
+And do we stop from iterating in our personal lives because we haven't created the perfect meal or exercise plan, because we haven't felt emotionally ready or because we have financial goals that haven't been met? Maybe. But let's take some actionalble steps toward progress.
+
+# The -er approach
+
+Better. Faster. Thinner. Healthier. Happier. They all end in -er. This suffex communicates progress -- not completion.
+
+I'm going to talk about some of the things I've done in my life to be -er.
+
