@@ -43,7 +43,7 @@ And do we stop from iterating in our personal lives because we haven't created t
 
 # The -er approach
 
-Better. Faster. Thinner. Healthier. Happier. They all end in -er. This suffex communicates progress -- not completion.
+Better. Faster. Thinner. Healthier. Happier. They all end in -er. This suffix communicates progress -- not completion.
 
 I'm going to talk about some of the things I've done in my life to be -er.
 
