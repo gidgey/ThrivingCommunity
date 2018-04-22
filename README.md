@@ -15,3 +15,13 @@ We've addressed it before in many ways. So let's talk about how what a thriving 
 
 # What is a thriving community?
 
+A thriving community realizes they can ebb and flow in and out of a project. They can contribute for months or years, take a break, maybe even mentor others, and come back -- or not.
+
+A thriving community recruits volunteers based upon inclusion, not guilt.
+
+A thriving community isn't burnt out or bitter.
+
+A thriving community is healthy -- physically, emotionally, and financially.
+
+# A Word About Perfection
+
